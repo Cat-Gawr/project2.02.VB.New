@@ -1,4 +1,4 @@
-# project2.02.VB.New                                                                                                                                                      25/0/2024
+# project2.02.VB.New                                                                                                                                                      25/05/2024
 
 ‖ questo file è solo in italiano per 2 motivi:
      ↪1)questo ifle è solo per le persone con la residenza italian(o del ticino)
