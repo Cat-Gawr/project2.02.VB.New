@@ -7,9 +7,31 @@
 
 
 
-
+(io non mi prenederò mai piu' responsablità se il codice non funziona) 
 
 
 
 
         P.S il link del discord è nei altri codici,da questo file non lo metterò piu'
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+bomboclact
